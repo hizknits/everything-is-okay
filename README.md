@@ -59,6 +59,7 @@ I promise. Here's a selection of videos, gifs, and streams to help improve your 
 * [Shark Cat](http://i.imgur.com/vn4mMZJ.gifv)
 * [Emu Arms](http://i.imgur.com/eUGI1oW.gifv)
 * [AWWW DERP](https://gfycat.com/PowerlessCooperativeHornedtoad)
+* [Kitty hugs toy] (https://49.media.tumblr.com/6bbac026d3365f44e55c5d68264ca69c/tumblr_nwxyr743WD1rylzllo1_400.gif)
 
 ### Instagram Accounts
 * [Hitch the Frenchie](https://www.instagram.com/alittlehitch/)
